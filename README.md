@@ -1,0 +1,1 @@
+# **PYTHON TEMEL - PROJE**
